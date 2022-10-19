@@ -1,7 +1,7 @@
 Still in construction....
 
 - 👋 Hi, I’m @carlosvouking
-- 👀 I’m interested in using tech to reshape the world
+- 👀 I’m interested in leveraging technology to reshape the world
 - 🌱 I’m currently learning Blockchain
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me email: cacarlveenerd@outlook.com - 
